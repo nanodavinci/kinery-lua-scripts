@@ -1,3 +1,3 @@
-These are some scripts that kinery provided me with for development of a revival, thanks for sending me all of them, all I really needed was one.
+I don't remember what these scripts were needed for all I know is that I used them to create an old roblox revival a long time ago that never finished coz fuck dat lmao
 
-According to kinery, some of the scripts here were never released, and yes, I have permission from him to make these public. If you're using these, PLEASE CREDIT KINERY!
+also some of these scripts were never ever released so yeah njoy
